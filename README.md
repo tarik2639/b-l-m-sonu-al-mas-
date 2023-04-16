@@ -1,1 +1,1 @@
-# b-l-m-sonu-al-mas-
+# Bölüm Sonu Çalışması
